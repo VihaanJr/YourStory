@@ -1,0 +1,2 @@
+intelligent guy helps dumb guy study but then strong guy comes and asks dumb guy if he wants to play. then mixture guy kills them all.
+then mixture guy revives all of them and ties them to a chair and starts cutting fingers and torturing them because mixture guy knew that all of them were terrorists. 

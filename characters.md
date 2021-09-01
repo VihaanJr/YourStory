@@ -1,0 +1,1 @@
+intelligent guy , dumb guy , strong guy , fast guy , mixture guy.
