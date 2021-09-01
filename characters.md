@@ -1,1 +1,1 @@
-intelligent guy , dumb guy , strong guy , fast guy , mixture guy.
+intelligent guy , dumb guy , strong guy , fast guy , mixture guy , doremon
