@@ -1,2 +1,2 @@
 intelligent guy helps dumb guy study but then strong guy comes and asks dumb guy if he wants to play. then mixture guy kills them all.
-then mixture guy revives all of them and ties them to a chair and starts cutting fingers and torturing them because mixture guy knew that all of them were terrorists. then doremon came and freed them all and all of them became good . they got superpowers and could fly!
+then mixture guy revives all of them and ties them to a chair and starts cutting fingers and torturing them because mixture guy knew that all of them were terrorists. then doremon came and freed them all and all of them became good . they got superpowers and could fly! yo yo momos! all died sadly ever after
